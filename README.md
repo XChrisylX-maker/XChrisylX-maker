@@ -9,4 +9,4 @@ XChrisylX-maker/XChrisylX-maker is a ✨ special ✨ repository because its `REA
 You can click the Preview link to take a look at your changes.
 --->
 Don't forget to have a nice day, an obligation to make reflexion easier...
-"When men will understand the limits between spirit and logic, Neutrinos'll be as strong as planets..."
+"When men will understand the limits between spirit and logic, Neutrinos'll be bigger than planets..."
